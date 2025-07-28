@@ -1,6 +1,6 @@
 # VNC Brute coded z668
 
-Download: https://u.pcloud.link/publink/show?code=XZCIFL5ZO1XXyKulXRpikDyCNDTQakusfwP7
+Download: https://krakenfiles.com/view/UQprAxwU7D/file.html
 
 
 Password: vncbrute
